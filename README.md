@@ -1,1 +1,1 @@
-# thehumanody
+# thehumanbody
